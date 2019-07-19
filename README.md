@@ -1,0 +1,2 @@
+# sonharf
+tüm herşey
